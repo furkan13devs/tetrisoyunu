@@ -1,1 +1,1 @@
-denemek için urkanbeyq.github.io/tetrisoyunu/
+denemek için furkanbeyq.github.io/tetrisoyunu/
